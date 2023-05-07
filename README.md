@@ -1,6 +1,6 @@
 Wedding Ceremony – Nick and Lynne
 
-Saturday September 20th at 6pm - Creekside Driftwood
+Saturday September 20th (2014) at 6pm - Creekside Driftwood
 
 Rehearsal Friday 2:15pm 
 
